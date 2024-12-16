@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Hacking
 - 💞️ I’m looking to collaborate on Nothing
 - 📫 How to reach me , no need to reach me
-- 😄 Pronouns: Regular size Human
+- 😄 Pronouns: Regular size Human Being / Homosapien
 - ⚡ Fun fact: No Fun facts
 
 <!---
